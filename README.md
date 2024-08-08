@@ -1,16 +1,17 @@
-## Hi there 👋
+## Hello
+ I'm sickdoney ψ(._. )>
 
 <!--
 **sickdoney-Carol/sickdoney-Carol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 I'm studying at Alura
+- 🌱 I'm developing in the JavaScript language 
+- 🤔 I use this space to organize and share my projects developed.
+- 🤓 I love roblox
+- 💬 I don't know how to use this
+- 😄 Pronouns: Ro/ck
+- 💬 my Gmail is: marzurkiewicz.carol@gmail.com
+-->(•ˋ _ ˊ•)
+![https://i.pinimg.com/736x/df/04/90/df0490fc398cc16b40ee43b5be673961.jpg ](link)
