@@ -1,5 +1,5 @@
 ## Hello
- I'm sickdoney ψ(._. )>
+ I'm *sickdoney* ψ(._. )>
 
 <!--
 **sickdoney-Carol/sickdoney-Carol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
