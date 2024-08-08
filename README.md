@@ -14,4 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: Ro/ck
 - 💬 my Gmail is: marzurkiewicz.carol@gmail.com
 -->(•ˋ _ ˊ•)
-![https://i.pinimg.com/736x/df/04/90/df0490fc398cc16b40ee43b5be673961.jpg ](link)
+![90e72d3adb7894853fac53374f83c3fc](https://github.com/user-attachments/assets/3aea700d-6193-456b-89ec-e008063daf0b)
