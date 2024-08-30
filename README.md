@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 💬 I don't know how to use this
 - 😄 Pronouns: Ro/ck
 - 💬 my Gmail is: marzurkiewicz.carol@gmail.com
--->*Caroline 1° "B"*
+-->Caroline 1° "B"( ͡°( ͡° ͜ʖ( ͡° ͜ʖ ͡°)ʖ ͡°) ͡°)
 ![90e72d3adb7894853fac53374f83c3fc](https://github.com/user-attachments/assets/3aea700d-6193-456b-89ec-e008063daf0b)
